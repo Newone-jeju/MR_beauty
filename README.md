@@ -1,3 +1,3 @@
 # MR_beauty
-## Newone corp first project
+## Newone start-up first project
 
